@@ -8,5 +8,5 @@ __Hola otra vez hijos de la verga__
 - **Pronombre wtf contexto????????**
 - **Soy veneco** 😔
 
-*Mi server de discord*
+*Mi server de discord:*
 > **discord.gg/E9Vn48jn56 <3**
